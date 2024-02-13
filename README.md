@@ -10,3 +10,6 @@ https://proserialkeys.com/microsoft-power-bi-crack  <BR>
 Software:<BR>
 https://resources.arcgis.com/en/communities/arcgis-explorer-desktop/<BR>
 https://geodacenter.github.io/download_windows.html <BR>
+
+COLLECT DATA: <BR>
+GO-FORMZ   IFORMBUILDER    APP NAME: EPICOLLECT  
